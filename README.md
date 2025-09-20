@@ -1,4 +1,3 @@
-###############################################
-EJERCICIOS OBLIGATORIOS
+###### EJERCICIOS OBLIGATORIOS
 
 
