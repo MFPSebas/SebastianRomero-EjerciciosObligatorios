@@ -1,0 +1,8 @@
+EJERCICIOS OBLIGATORIOS
+______________________________
+
+ALUMNO:
+SEBASTIAN ROMERO
+
+______________________________
+
